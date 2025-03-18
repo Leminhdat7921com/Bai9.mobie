@@ -5,7 +5,8 @@ Lê Minh Đạt - 19810310083
 ![image](https://github.com/user-attachments/assets/224e6235-4ae4-41c4-a287-865b76b30a16)
 
 
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/7c032c30-dc15-44e0-bc7c-0a1bafbc7578)
+
 
 
 
